@@ -1,1 +1,1 @@
-### Hello world, meu nome é Moises Delfino 😁✌️
+### Hello world, meu nome é Moises Delfino ✌️
